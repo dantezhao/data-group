@@ -24,6 +24,6 @@
 
 欢迎加入我们的数据闲聊群：
 
-![二维码](http://mdjs-1251938544.cossh.myqcloud.com/extra/chatroom3.png)
+![二维码](./chatroom3.png)
 
 或者加微信：mdjs91
