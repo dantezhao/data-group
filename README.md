@@ -18,3 +18,10 @@
 [祝威廉大神](https://www.jianshu.com/u/59d5607f1400)
 
 [仗剑走天涯](https://www.jianshu.com/u/511ba5d71aef)
+
+
+## 0x02 数据闲聊群
+
+欢迎加入我们的数据闲聊群：
+
+![](http://mdjs-1251938544.cossh.myqcloud.com/extra/chatroom3.png)
