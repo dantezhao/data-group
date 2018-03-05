@@ -17,4 +17,4 @@
 
 [祝威廉大神](https://www.jianshu.com/u/59d5607f1400)
 
-[涨价走天涯](https://www.jianshu.com/u/511ba5d71aef)
+[仗剑走天涯](https://www.jianshu.com/u/511ba5d71aef)
