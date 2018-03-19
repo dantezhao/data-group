@@ -19,11 +19,5 @@
 
 [仗剑走天涯](https://www.jianshu.com/u/511ba5d71aef)
 
+[叨叨侠爱叨叨](https://www.jianshu.com/u/1a5300809bf9)
 
-## 0x02 数据茶水间
-
-欢迎加入我们的数据茶水间：
-
-![二维码](./chatroom3.png)
-
-或者加微信：mdjs91
